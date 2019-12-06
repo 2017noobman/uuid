@@ -1,0 +1,5 @@
+- [老高與小茉 Mr & Mrs Gao@YouTube【悬疑|灵异】](https://rsshub.app/youtube/channel/UCMUnInmOkrWN4gof9KlhNmQ)
+- [李永乐老师@YouTube【教育|科普】](https://rsshub.app/youtube/channel/UCSs4A6HYKmHA2MG_0z-F0xw)
+- [杰里德Jared@YouTube【外国人|加拿大🇨🇦】](https://rsshub.app/youtube/channel/UCgZtGFGS-SGyvAE9iqmTauQ)
+- [Thomas阿福@YouTube【外国人|德国🇩🇪】](https://rsshub.app/youtube/channel/UC689uDf0ryZniKpuSK9ESTw)
+- [Jerry Kowal 我是郭杰瑞@YouTube【外国人|美国🇺🇸】](https://rsshub.app/youtube/channel/UCfIbForcbE83cxm8MScOTlQ)
